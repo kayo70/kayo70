@@ -15,7 +15,7 @@
 <br>
 
 - Um desenvolvedor Front-End com experiência de 8 anos.
-- Meu [LinkedIn](https://www.linkedin.com/in/gabriel-de-carvalho-26456b245/](https://www.linkedin.com/in/kayocampos/)).
+- Meu [LinkedIn](https://www.linkedin.com/in/kayocampos/)]).
 - Estou aberto para uma nova oportunidade de trabalho.
 
 <br>
